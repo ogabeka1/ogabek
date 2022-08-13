@@ -1,0 +1,2 @@
+# ogabek
+saliuhsnm,a
